@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Navmacs2000
 - 👀 I’m interested in NODLEs mission, and also crypto investing.
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I’m currently learning everything NODLE, Crypto currency, and latest trends.
+- 💞️ I’m looking to collaborate on those.
 - 📫 How to reach me aemelton@mail.com
 
 <!---
